@@ -1,0 +1,1 @@
+# FLIP02 BETTERWAY7에 대한 내용임
